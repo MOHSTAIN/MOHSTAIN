@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Hi I'm Logan:
 Im a 20 year old student studying out of Hamilton, New Zealand. I am studying Information Technology and am in my second year having specialized as a prospective network engineer.
 
 
