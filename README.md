@@ -1,5 +1,5 @@
 # 💫 Hi I'm Logan:
-Im a 21 year old student studying out of Hamilton, New Zealand. I am studying Information Technology and am in my Third and final year,.
+Im a 21 year old student studying out of Hamilton, New Zealand. I am studying my Information Technology Bachelor's Degree and am in my Third and final year.
 
 
 # 💻 Tech Stack:
